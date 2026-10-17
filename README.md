@@ -10,3 +10,6 @@ Kesan saya terhadap INTRIVIA positif, saya mendapatkan wawasan baru dan memperlu
 
 ## Kesan Pesan Cluster 1 Sejauh Ini 
 Kesan saya terhadap cluster ini asik, open dan suportif. Semoga akan terus positif dan terus menjaga komunikasi yang baik.
+
+## Harapan Kuliah 
+Semoga bisa semakin bisa berkembang dan menjadi lebih baik.
